@@ -8,6 +8,7 @@
   🎓 <b>Education:</b> High School Graduate
 </p>
 
+
 ---
 
 ### 🎓 ACADEMIC ASPIRATIONS
